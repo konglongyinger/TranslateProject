@@ -1,3 +1,5 @@
+Translating by konglongyinger
+
 Exploring free and open web fonts
 ======
 
